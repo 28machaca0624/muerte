@@ -1,0 +1,2 @@
+# muerte
+rey sombra 
